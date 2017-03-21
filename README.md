@@ -1,0 +1,1 @@
+Test task for a frontend (NSI Holdings) position at Together Networks
